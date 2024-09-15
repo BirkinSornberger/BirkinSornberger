@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BirkinSornberger
-- 👀 I’m interested in Skating, Gaming and outdoor activities
+- 👀 I’m interested in camping, hiking, gaming, etc.
 - 🌱 I’m currently learning Python & HTML
 - 💞️ I’m looking to collaborate on... you don't want me collaborating on your projects bro
 - 📫 How to reach me send me a msg, or shoot me an email @ bsornbergerx@gmail.com
